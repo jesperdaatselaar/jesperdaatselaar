@@ -9,6 +9,6 @@ With my profile I hope to give an example of what I can and / or am doing with m
 Enjoy reading, I'd love to hear from you.
 
 #### Contact
-[E-Mail me](mailto:jesperdaatselaar@gmail.com), contact me via
+[Email me](mailto:jesperdaatselaar@gmail.com), contact me via
 [Twitter](https://twitter.com/@jesperdtslr)
 or visit [my website](https://jesperdaatselaar.com)
